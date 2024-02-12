@@ -1,1 +1,1 @@
-# rimazrizwan.io
+# rimazrizwan
